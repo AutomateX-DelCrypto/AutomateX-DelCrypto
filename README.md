@@ -160,7 +160,7 @@ I'm open to full-time or contract roles where I can build **automation infrastru
 📧 [del@xautomatex.com](mailto:del@xautomatex.com)
 
 **Social:**  
-🐦 [X/Twitter: @AutomateX98](https://x.com/AutomateX98)
+🐦 [X/Twitter: @@XautomateX](https://x.com/@XautomateX)
 
 ---
 
