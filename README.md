@@ -1,4 +1,4 @@
-# 🚀 DelCrypto — n8n Automation Architect
+# 🚀 DelCrypto — Solutions Architect
 
 **If it can be automated, it should be — and I'm the engineer who makes it bulletproof.**
 
